@@ -1,2 +1,2 @@
 # hello-world
-My name is Giovanni Giorgio but everybody calls me Giorgio
+My name is Beyza Çiçek
